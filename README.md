@@ -5,5 +5,6 @@
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: Love playing video games🎮, have 2 adorable cats🐈 at home, and attending the same uni with my brother!
 - 🖥️ I love learning about different APIs and I am currently exploring my Tesla Model3🚗 with the Tesla API!
+- 🏫 Upcoming Fudan University Summer Exchange Program student.
 - 💬 Ask me about anything you like! 
 - 📫 How to reach me: winifred.wang.2004@gmail.com
